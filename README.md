@@ -1,2 +1,1 @@
-# sinicials.github.io
-&lt;3
+<3
